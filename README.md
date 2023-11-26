@@ -15,6 +15,8 @@
  贴吧：[重新整个美化贴！！来玩！](https://tieba.baidu.com/p/8716380549?)<br>
  Discord：iruiakiyama<br>
  QQ群：672450025，入群答案是我的贴吧昵称+discord的id<br>
+
+  ## 特别说明，我搞美化全看个人心情，让我不开心了那我就随时准备删文件提桶跑路。
 <br>
 <br>
 <br>
